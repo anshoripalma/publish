@@ -11,9 +11,6 @@ tags:
 
 ---
 
-
-Ахмад Палма Аншори
-
 Assimil Русский язы селолня
 
 The Kreutzer Sonata - Leo Tolstoy
